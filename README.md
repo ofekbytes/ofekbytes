@@ -1,8 +1,13 @@
+🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟
+
 # ofekbytes
 
 - 👋 Hi, 
-- ✨ My name is ✨jaron✨ 
-- ✨ My Github profile name is ✨@ofekbytes✨.
-- 👀 i love to program/develop things.
-- 🌱 i have a lot of ideas and a little time to do it during the day.
-- 🌟 i would like greet you personally for joining my coding journey. 🌟
+- 👋 'jaron' is My name. 
+- ✨ '@ofekbytes' is My Github name  .
+- 🌟 i would like to greet you personally for joining my coding journey . 🌟
+- 👀 i love to program/develop .
+- 🌱 i have a lot of ideas and a little time to do it during the day .
+
+
+🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟🌟
